@@ -4,12 +4,14 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+I'm Amy! I am trying to live life so I can die with no regrets. I like people, challenges, adventures. I try to do things for the right reasons, and so far the biggest challenge of my life has been distinguishing between what's important to me and what's important to everyone else.
 
-### More Information
+### Work and Life
 
-A place to include any other types of information that you'd like to include about yourself.
+I am self-employed as a [strategy coach for artists and creative entrepreneurs](https://www.amyrhodabrown.com). I work with creative people who want to make a big change in their creative practice or business. I help them figure out the why and how, and follow through on the what.
+
+I have children, I have cats, I have a house. I like to sing, go to concerts and go out dancing. I like working at cafes and libraries, and having long conversations with friends and strangers.
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[arbrown@latte.ca](mailto:arbrown@latte.ca)
