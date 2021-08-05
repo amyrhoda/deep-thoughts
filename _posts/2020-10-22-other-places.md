@@ -4,8 +4,6 @@ title: The Lure of Other Places
 published: true
 ---
 
-# The Lure of Elsewhere
-
 **October 22 2020** — "I've always wanted to live in..." I've heard it a hundred times. Japan. New York City. Dubai. Tuscany. Greece. Australia. Los Angeles. Costa Rica. The Shire. A big city. A village. A cottage by the sea. 
 
 It's easy to get caught up in the idea of a particular place. Here's Debbie Travis on Tuscany: "We fell in love and instinctively knew it was a special place, a peaceful place, a historic place, a place of re-birth." And her neighbour and friend, Frances Mayes: "I was overwhelmed by the beauty of the towns, the vivacity of the people, and the easy sense of time." 
