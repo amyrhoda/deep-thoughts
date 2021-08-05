@@ -1,7 +1,7 @@
 ---
 layout: post
-title: You're up and running!
-published: false
+title: The Lure of Other Places
+published: true
 ---
 
 # The Lure of Elsewhere
