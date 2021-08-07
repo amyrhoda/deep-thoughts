@@ -143,6 +143,8 @@ I trusted my own swimming abilities (and inherent bouyancy), I trusted my own ju
 
 So with fear and trust hand in hand, I did a scary thing and I survived. And I can do it again. 
 
+***
+
 ### Coda
 
 I hate that I've spent so much time, not just writing this essay but in my life, thinking about what's wrong with me. It goes against what I believe as a coach, which is that you should lead from your strengths instead of trying to correct your weaknesses.
