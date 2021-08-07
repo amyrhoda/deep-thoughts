@@ -118,6 +118,7 @@ Fear stops me from being myself.
 > upsetting people, disappointing people, annoying people, being a bother, being bored, being boring, making mistakes, looking stupid, being disliked, getting my feelings hurt, getting physically hurt, hurting people's feelings, being overwhelmed, getting behind, paperwork and administrivia, letting people down, difficult conversations, being thought poorly of, being typical, being fatter, being older, being poor, chronic pain, dementia, losing control of my bodily functions, car crashes, death
 > 
 > (Yes, I see the ableism and the ageism in this list.)
+>
 > ***
 
 
