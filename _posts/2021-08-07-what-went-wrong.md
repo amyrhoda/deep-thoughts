@@ -50,11 +50,11 @@ It doesn't add up.
 
 And so one of the defining questions of my life has become: What went wrong?
 
-#### What Went Wrong
+### What Went Wrong
 
 I chew this over a lot. There are lots of reasons why my career has failed to thrive, and over years of thought I've been coming to understand the whole picture. I already knew about a few of the causes — my upbringing, the way my brain works, a soupçon of systematic oppression. In the last few weeks, though, a new factor has come into focus.
 
-### The Patriarchy
+#### The Patriarchy
 
 Let's get this one out of the way first, because it's the one I understand the least. It's too pervasive, I have trouble seeing it the way a fish has trouble seeing water. (I need a fact check on that metaphor — maybe fish see water just fine! But it's easy to imagine they don't.)
 
@@ -68,7 +68,7 @@ Now, it's true that lots of women leave a career to raise their kids and then ma
 
 So there must be more to it than that. And there is.
 
-### A very weird upbringing
+#### A very weird upbringing
 
 My parents' marriage was forged in ambition and hope — they fell in love while working together to get a palliative care home built. But just around the time they got married, they were excluded from what they thought of as *their* project (my mother expected to be appointed head nurse) and kicked to the curb.
 
@@ -78,7 +78,7 @@ Combine that with the unexplained subtext of shame that pervaded our family life
 
 At this point I should acknowledge that the fact that I've done as well as I have — I am happy(ish) and plump and well-housed, have many friends and no addictions or debt — is a testament to the privilege I carry as a white cishet non-disabled woman. If I had been faced with racism or homophobia or anything else, I would have either crumbled or been forced to figure my shit out (no saying which) a long time ago.
 
-### ADHD
+#### ADHD
 
 The jury is still out on whether I officially have ADHD or am just easily distracted (etc etc), but regardless of whether I get a diagnosis or not, the fact is I struggle. 
 
@@ -110,7 +110,7 @@ Fear stops me from asking for what I need.
 Fear stops me from speaking up when I witness injustice. 
 Fear stops me from being myself.
 
-### Sidebar: What am I afraid of? An incomplete list:
+#### Sidebar: What am I afraid of? An incomplete list:
 
 - upsetting people
 - disappointing people
@@ -154,6 +154,7 @@ Fear stops me from being myself.
 - just a little bit of danger
 -->
 
+***
 
 ### Back in the water
 
@@ -192,4 +193,3 @@ Understanding the patterns and beliefs that you learned as a child lets you spot
 Understanding your own brain, what it's good at and what it struggles with, can allow you to devise strategies to do an end run around your weaknesses, and also to forgive yourself when things don't go well. And you don't need a diagnosis to do that.
 
 Understanding leads to acceptance and allows for strategy and compassion, which makes room for growth.
-
