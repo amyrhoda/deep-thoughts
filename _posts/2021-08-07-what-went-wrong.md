@@ -101,44 +101,19 @@ In the last few weeks I've learned a great deal about my relationship with risk,
 Within me there are two warring impulses. (What fun!) 
 On the one hand, I am drawn to challenge and risk. On the other hand, I'm governed by fear. 
 
-See the imbalance there? "Drawn to" versus "governed by". Fear has had the upper hand for as long as I can remember — it has defined the very perimeter of my life so far.
+See the imbalance there? "Drawn to" versus "governed by". Fear has had the upper hand for as long as I can remember — it has defined the very perimeter of my life.
 
-For forty-six years fear has, imperceptibly and in collusion with the other things I listed up there, nudged me away from the life of excitement, challenge and purpose that I want to have lived and into a life that is comfortable, socially acceptable, and safe.
+For forty-six years fear has, imperceptibly and in collusion with the other things I listed, nudged me away from the life of excitement, challenge and purpose that I want to have lived and into a life that is comfortable, socially acceptable, and safe.
 
 Fear made me keep abandoning blogs, never giving them the air and light to thrive because I was afraid of being seen and so, disliked. Fear stopped me from pursuing a career in writing. Fear made me turn down opportunities, and more insidiously, hid opportunities from me. Fear stops me from inviting people into my home and into my life. 
-Fear stops me from asking for what I need.
+Fear stops me from asking for what I need. Fear stops me from hearing what my body needs.
 Fear stops me from speaking up when I witness injustice. 
 Fear stops me from being myself.
 
+
 > #### Sidebar: What am I afraid of? An incomplete list:
 > 
-> - upsetting people
-> - disappointing people
-> - annoying people
-> - being a bother
-> - being bored
-> - being boring
-> - making mistakes
-> - looking stupid
-> - being disliked
-> - getting my feelings hurt
-> - getting physically hurt
-> - hurting people's feelings
-> - being overwhelmed
-> - getting behind
-> - paperwork and administrivia
-> - letting people down
-> - difficult conversations
-> - being thought poorly of
-> - being typical 
-> - being fatter
-> - being older
-> - being poor
-> - chronic pain
-> - dementia
-> - losing control of my bodily functions
-> - car crashes
-> - death
+> upsetting people, disappointing people, annoying people, being a bother, being bored, being boring, making mistakes, looking stupid, being disliked, getting my feelings hurt, getting physically hurt, hurting people's feelings, being overwhelmed, getting behind, paperwork and administrivia, letting people down, difficult conversations, being thought poorly of, being typical, being fatter, being older, being poor, chronic pain, dementia, losing control of my bodily functions, car crashes, death
 > 
 > (Yes, I see the ableism and the ageism in this list.)
 
@@ -147,9 +122,9 @@ Fear stops me from being myself.
 
 ### Back in the water
 
-I probably didn't flail, in the river at the cottage, for more than a few seconds. I kept my head above water, barely, while the river swept me and the treacherous inner tube further apart and then back together again. Eventually I got my arms around the thing and clung to it like a baby ape until the rapids ended and the river gently ushered me into the lagoon.
+I probably didn't flail, in the river at the cottage, for more than a few seconds. I kept my head above water, barely, while the river swept me and the treacherous inner tube further apart and then back together again. Eventually I got my arms around the thing and clung to it like a baby ape until the fast water slowed and I could paddle myself into the lagoon.
 
-I don't think I was in any serious danger, although drowning is one of those mysterious and sudden things that seem to happen to the most well-prepared people. (At least it seems so to me — maybe others understand it better.) The stretch of fast water is short, and I could probably have just floated my way out of thesituation. And if I was in real trouble, my friend is a strong swimmer and she was watching; I'm pretty sure she would have at least tried to save me.
+I don't think I was in any serious danger (although drowning seems to me one of those mysterious and sudden things that happen to the most well-prepared people). The stretch of fast water is short, and I could probably have just floated my way out of the situation. And if I was in real trouble, my friend is a strong swimmer and she was watching; I'm pretty sure she would have at least *tried* to save me.
 
 I came out of the situation with a humdinger of a bruise, a pretty good story, and a deeper understanding of what it's like to choose to do the scary thing, have it go wrong, and survive anyway. 
 
