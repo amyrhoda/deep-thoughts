@@ -10,7 +10,7 @@ I was staying at a cottage situated next to a most remarkable piece of river. As
 
 It was in this uncommonly perfect topography that I faced my own mortality. 
 
-![A river cascades down about five feet over rocks. The water is brownish like weak tea.](../images/what-went-wrong-fast-water.jpg "Fast water over rocks")
+![A river cascades down about five feet over rocks. The water is brownish like weak tea.](/images/what-went-wrong-fast-river.jpg "Fast water over rocks")
 
 It was our last day at the cottage. We were sunbaked and relaxed in the way that only mothers after 48 hours without cellphone service can be. 
 
@@ -125,7 +125,7 @@ Fear stops me from being myself.
 
 I probably didn't flail, in the river at the cottage, for more than a few seconds. I kept my head above water, barely, while the river swept me and the treacherous inner tube further apart and then back together again. Eventually I got my arms around the thing and clung to it like a baby ape until the fast water slowed and I could paddle myself into the lagoon.
 
-![A river with a small patch of white-capped fast water, and calm water beyond.](../images/what-went-wrong-slow-water.jpg "The water slows to a lagoon")
+![A river with a small patch of white-capped fast water, and calm water beyond.](../images/what-went-wrong-slow-river.jpg "The water slows to a lagoon")
 
 I don't think I was in any serious danger (although drowning seems to me one of those mysterious and sudden things that happen to the most well-prepared people). The stretch of fast water is short, and I could probably have just floated my way out of the situation. And if I was in real trouble, my friend is a strong swimmer and she was watching; I'm pretty sure she would have at least *tried* to save me.
 
