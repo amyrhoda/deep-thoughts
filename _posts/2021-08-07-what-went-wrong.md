@@ -111,29 +111,29 @@ Fear stops me from speaking up when I witness injustice.
 Fear stops me from being myself.
 
 > #### Sidebar: What am I afraid of? An incomplete list:
-
-- upsetting people
-- disappointing people
-- annoying people
-- being a bother
-- being bored
-- being boring
-- making mistakes
-- looking stupid
-- being disliked
-- getting my feelings hurt
-- getting physically hurt
-- hurting people's feelings
-- being overwhelmed
-- paperwork and administrivia
-- getting behind
+> 
+> - upsetting people
+> - disappointing people
+> - annoying people
+> - being a bother
+> - being bored
+> - being boring
+> - making mistakes
+> - looking stupid
+> - being disliked
+> - getting my feelings hurt
+> - getting physically hurt
+> - hurting people's feelings
+> - being overwhelmed
+> - getting behind
+> - paperwork and administrivia
 > - letting people down
 > - difficult conversations
 > - being thought poorly of
 > - being typical 
 > - being fatter
 > - being older
-> - being too poor to do the things I want to do
+> - being poor
 > - chronic pain
 > - dementia
 > - losing control of my bodily functions
