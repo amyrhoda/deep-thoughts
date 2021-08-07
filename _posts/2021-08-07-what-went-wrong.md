@@ -110,7 +110,7 @@ Fear stops me from asking for what I need.
 Fear stops me from speaking up when I witness injustice. 
 Fear stops me from being myself.
 
-#### Sidebar: What am I afraid of? An incomplete list:
+> #### Sidebar: What am I afraid of? An incomplete list:
 
 - upsetting people
 - disappointing people
@@ -127,32 +127,21 @@ Fear stops me from being myself.
 - being overwhelmed
 - paperwork and administrivia
 - getting behind
-- letting people down
-- difficult conversations
-- being thought poorly of
-- being stereotypical 
-- being fatter
-- being older
-- being too poor to do the things I want to do
-- chronic pain
-- dementia
-- losing control of my bodily functions
-- car crashes
-- death
+> - letting people down
+> - difficult conversations
+> - being thought poorly of
+> - being typical 
+> - being fatter
+> - being older
+> - being too poor to do the things I want to do
+> - chronic pain
+> - dementia
+> - losing control of my bodily functions
+> - car crashes
+> - death
+> 
+> (Yes, I see the ableism and the ageism in this list.)
 
-(Yes, I see the ableism and the ageism in this list.)
-
-<!-- What am I drawn to?
-
-- travel and cultures
-- hiking and camping and being in nature
-- intense, intimate conversations
-- flirting
-- dancing
-- singing and performing
-- gatherings and crowds
-- just a little bit of danger
--->
 
 ***
 
