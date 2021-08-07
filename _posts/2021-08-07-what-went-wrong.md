@@ -110,15 +110,14 @@ Fear stops me from asking for what I need. Fear stops me from hearing what my bo
 Fear stops me from speaking up when I witness injustice. 
 Fear stops me from being myself.
 
-
+> ***
 > #### Sidebar: What am I afraid of? An incomplete list:
 > 
 > upsetting people, disappointing people, annoying people, being a bother, being bored, being boring, making mistakes, looking stupid, being disliked, getting my feelings hurt, getting physically hurt, hurting people's feelings, being overwhelmed, getting behind, paperwork and administrivia, letting people down, difficult conversations, being thought poorly of, being typical, being fatter, being older, being poor, chronic pain, dementia, losing control of my bodily functions, car crashes, death
 > 
 > (Yes, I see the ableism and the ageism in this list.)
+> ***
 
-
-***
 
 ### Back in the water
 
