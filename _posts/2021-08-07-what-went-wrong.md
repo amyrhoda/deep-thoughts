@@ -1,7 +1,7 @@
 ---
 layout: post
 title: What Went Wrong
-published: false
+published: true
 ---
 
 A couple of weeks ago I almost died.
