@@ -8,9 +8,7 @@ For the last couple of weeks I've been part of a group of women, convened by coa
 
 If you read my coaching blog you know I bang on about values a lot. I'm a big believer in the utility of knowing your own values and using them to set goals and priorities, and to figure out how to spend time and money.
 
-In fact, I think it was in the context of spending money that I first started doing values work. The authors of the book *Your Money or Your Life* invite readers to use their values as a guide to decide how to spend (or not) your money. 
-
-According to Goodreads, I read that in 2014, which means I've been thinking about values for seven years. They are as follows:
+In fact, I think it was in the context of spending money that I first started doing values work. Joe Dominguez and Vicki Robin, the authors of the book *Your Money or Your Life* invite readers to use their values as a guide to decide how to spend (or not) your money. I read that book in 2014, which means I've been thinking about my values for seven years, so I'm pretty clear on what they are:
 
 - Respect / Love 
 - Camaraderie / Community / Connection
@@ -29,9 +27,9 @@ For example, my coaching work serves the values of respect and connection, it's 
 
 The result of my soul searching was, anti-climactically, that pretty much everything I do either honours several values or is something I'm obliged to do because I haven't figured out how to get out of it yet. (Ahem, yard maintenance.) 
 
-But the big ah-hah was that it seemed I'm not doing anything in particular to honour my value of Serenity. My first impulse was to add something — I must do something Serene! But the very thought of it made me *less* serene. I don't have time for that!
+But the big ah-hah was that it seemed I'm not doing anything in particular to honour my value of Serenity. My first impulse was to add something — I must do something serene! But the very thought of adding another task made me *less* serene. I don't have time for that!
 
-Upon further thought I realized that I already do lots of things to bring more serenity into my life, by design. I always step away from my desk for lunch, I don't work on weekends, I go for long solo walks, I take a ridiculous number of weeks off.
+Upon further thought I realized that I already, by design, do lots of things to bring more serenity into my life. I always step away from my desk for lunch, I don't work on weekends, I go for long solo walks, I take a ridiculous number of weeks off.
 
 The thing is, they've become automatic. I'll go for a walk and spend the time thinking about social media strategy. I'll take a bath and try and get through a backlog of magazines and do a face mask at the same time.
 
