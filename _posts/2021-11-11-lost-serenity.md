@@ -13,7 +13,7 @@ In fact, I think it was in the context of spending money that I first started do
 According to Goodreads, I read that in 2014, which means I've been thinking about values for seven years. They are as follows:
 
 - Respect / Love 
-- Cameraderie / Community / Connection
+- Camaraderie / Community / Connection
 - Adventure / Challenge 
 - Serenity 
 - Independence / Agency
