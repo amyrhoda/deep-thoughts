@@ -12,14 +12,14 @@ In fact, I think it was in the context of spending money that I first started do
 
 According to Goodreads, I read that in 2014, which means I've been thinking about values for seven years. They are as follows:
 
-Respect / Love 
-Cameraderie / Community / Connection
-Adventure / Challenge 
-Serenity 
-Independence / Agency
-Curiosity / Learning
+- Respect / Love 
+- Cameraderie / Community / Connection
+- Adventure / Challenge 
+- Serenity 
+- Independence / Agency
+- Curiosity / Learning
 
-(This is the secret of values, that you can almost never capture them with just one word, but they definitely cluster.)
+(This is the secret of values: that you can almost never capture them with just one word, but they definitely cluster.)
 
 In the discussion group for Sara's community, I mentioned that I'm ever so terribly busy lately. Sara invited me to consider all the stuff I'm doing in light of my values, which is something I've done before but not lately.
 
@@ -49,4 +49,4 @@ Lately it seems like attention is the answer to a lot of problems. It's definite
 
 ---
 
-Further reading: [How to Do Nothing: Resisting the attention economy by Jenny Odell](https://app.thestorygraph.com/books/94ecd827-f0e4-4876-9db5-40c414e039cc)
+Further reading: [How to Do Nothing: Resisting the Attention Economy by Jenny Odell](https://app.thestorygraph.com/books/94ecd827-f0e4-4876-9db5-40c414e039cc)
