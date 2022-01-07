@@ -4,7 +4,7 @@ title: Joy and Bread Time — Intentions for 2022
 status: published
 ---
 
-The older I get, the more abstract my new year's resolutions are. I used to make lists of things to accomplish. Now the new year spread in my notebook is not much more than a floating cloud of nouns: joy, community, trust.
+The older I get, the more abstract my new year's resolutions are. I used to make lists of things to accomplish. Now the new year spread in my notebook is not much more than a floating cloud of nouns: community, ease, trust, bread.
 
 And it makes sense: practically speaking, a year is an unwieldy period of time for projects. Any project that takes a year will definitely need to be broken down into sub-projects, and that's what weekly or monthly plans are for.
 
