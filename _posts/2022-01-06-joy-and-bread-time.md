@@ -1,7 +1,7 @@
 ---
-layout: post
+format: post
 title: Joy and Bread Time: Intentions for 2022
-published: true
+status: published
 ---
 
 The older I get, the more abstract my new year's resolutions are. I used to make lists of things to accomplish. Now the new year spread in my notebook is not much more than a floating cloud of nouns: joy, community, trust.
