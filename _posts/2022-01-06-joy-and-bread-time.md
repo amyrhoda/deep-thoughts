@@ -1,6 +1,6 @@
 ---
 format: post
-title: Joy and Bread Time — Intentions for 2022
+title: Joy and Bread Time
 status: published
 ---
 
