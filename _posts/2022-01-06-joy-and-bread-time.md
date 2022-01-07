@@ -46,15 +46,15 @@ I've always struggled with clock time, although I didn't realize it until recent
 
 Now, thankfully, blissfully, I can mostly do things in my own time, but that has only heightened my distaste of forcing my day into a schedule. I am okay with an appointment or two (which is good, since my job literally involves meeting with people) but I'm over trying to get up or be at my desk, finish work, make dinner by the clock.
 
-At the same time as I was learning about Bread Time, it was around the solstice and I posted these thoughts to Instagram:
+At the same time as I was learning about Bread Time, it was around the solstice and I posted [two posts](https://www.instagram.com/p/CXrE2ktpAWA/) about [the Solstice](https://www.instagram.com/p/CX0_ZJRg12N/) to Instagram:
 
->[Half past noon](https://www.instagram.com/p/CXrE2ktpAWA/), two days before Solstice and the sun is barely clearing the buildings. It feels like bedtime around four, and by 9:30 you feel like you've been up all night.
+>Half past noon, two days before Solstice and the sun is barely clearing the buildings. It feels like bedtime around four, and by 9:30 you feel like you've been up all night.
 
 >How amazing, and how unlikely, to live on this funny little planet with its funny little tilt which gives us solstices and seasons and weather, and so festivals and feasts. Things to look forward to, things to plan for, and a promise, an absolute guarantee that longer, warmer days will come.
 
 and
 
->[It's only in the last few years](https://www.instagram.com/p/CX0_ZJRg12N/) that I've really appreciated the solstice. It's kind of a nothing holiday, really, unless you decide to make a big deal of it. (Which is funny, because it's actually less invented than most holidays.)
+>It's only in the last few years that I've really appreciated the solstice. It's kind of a nothing holiday, really, unless you decide to make a big deal of it. (Which is funny, because it's actually less invented than most holidays.)
 
 >But the thing is, the day before Winter Solstice is cold and dark, and the day after Winter Solstice is cold and dark. It's not even the middle of winter - nowhere near. We still have months of cold and grey ahead of us.
 
