@@ -10,7 +10,7 @@ I came downstairs and did an internet search for the recipe, and discovered that
 
 Confused and alarmed, I then searched for peanut butter pie. Most of those seem to result in fluffy cream-type pies — also intriguing, but still not what I wanted.
 
-So I made something up. I started with the shortbread crust that forms the basis for many delicious squares in what we call the Yellow Cookbook, The Pleasures of your Food Processor by Toronto cookbook icon Norene Gilletz. 
+So I made something up. I started with the shortbread crust that forms the basis for many delicious squares in what we call the yellow cookbook: *The Pleasures of your Food Processor* by Toronto cookbook icon Norene Gilletz. 
 
 For the top layer, I channeled some of the energy of those classic peanut butter marshmallow squares, but I wanted some fluffiness too, so I added an egg. 
 
