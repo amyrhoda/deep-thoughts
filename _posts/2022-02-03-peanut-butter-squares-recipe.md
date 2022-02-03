@@ -1,4 +1,4 @@
- ---
+---
 format: post
 title: Peanut Butter Squares: An Original Recipe
 status: published
