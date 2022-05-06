@@ -70,36 +70,35 @@ I dropped everything to be with her. Dropping everything to do anything is not m
 
 I excused myself from work, left my kids in the hands of my Toronto family, missed a birthday and a concert and who knows what else, and took to my mother's side. It was undoubtedly the right choice. It's a joy and a privilege to take care of someone you love, and it deepened our relationship in its last weeks. 
 
-I'm so glad I decided to drop everything and take care of my mother, but it was an easy decision to make. The fact that she was my mother made it easy within myself and to the outside world. I loved my mother madly, and we enjoyed each other's company. There was no ambivalence in my choice to look after her, apart from missing my own children and my life back in Toronto.
+I'm so glad I decided to drop everything and take care of my mother, but it was an easy decision to make. The fact that she was my mother made it easy within myself: I loved my mother madly, and we enjoyed each other's company. There was no ambivalence in my choice to look after her, apart from missing my own children and my life back in Toronto.
 
-The outside world made it easy, too. Nobody will ever give you a hard time for looking after your dying mother. The seas will part to help you. It's one of the most sacred things you can do, in this society and probably any other.
+The outside world made it an easy choice, too. Nobody will ever give you a hard time for looking after your dying mother; the seas will part to help you. It's one of the most sacred things you can do, in this society and probably any other.
 
-
-What I learned in those four months was the mechanics, the literal logistics, of how to drop everything and take care of someone. I already had the "taking care of someone" part down pat, from twelve years of motherhood. But the "dropping everything" — I had never done that before. I wasn't afraid to do it: I knew that things would be fine in my absence. I simply had never made the choice to set aside my everyday activities and put someone else's crisis first.
+What I learned in those four months was the mechanics, the literal logistics, of how to drop everything and take care of someone. I already had the "taking care of someone" part down pat, from twelve years of motherhood. But the "dropping everything" — I had never done that before. I simply had never made the choice to set aside my everyday activities and put someone else's crisis first.
 
 And because I had never done it, it had never occurred to me to do it, until the person who needed me was my mother.
 
 #### A missed opportunity to take care of someone
 
-A few years before my mother died, my brother was hit by a car and broke his knee. He had a pretty big surgery, was in hospital for a few weeks, and then went home to months of physio and recovery.
+A few years before my mother died, my brother had been hit by a car and broken his knee. He had a pretty big surgery, was in hospital for a few weeks, and then went home to months of physio and recovery.
 
-When my brother got hurt, I had never spent time with someone in hospital. I had never helped someone recover from major surgery. I didn't understand the boredom, the frustration, the tedium, the helplessness, the loneliness.
+At the time my brother got hurt, I had never spent time with someone in hospital; I had never helped someone recover from major surgery. I didn't understand the boredom, the frustration, the tedium, the helplessness, the loneliness.
 
-I learned about that stuff when I took care of my mother, and saw it all first hand. It was only then that I realized what I had left my brother to face without me.
+I learned about that stuff when I took care of my mother and saw it all first hand. It was only then that I realized what I had left my brother to face without me.
 
-To be fair, my choice not to drop everything and take care of my brother was complicated by the fact that my brother lives in Tokyo and my children were quite small at the time. It's very likely that, even had I realized the depth of his troubles, I would have made the choice to not go to his side. But it would have been a choice, rather than the gormless oversight that it actually was.
+To be fair, my choice not to drop everything and take care of my brother was complicated by the fact that he lives in Tokyo, and my children were quite small at the time. It's very likely that, even had I realized the depth of his troubles, I would have made the choice to not go to his side. But it would have been a choice, rather than the gormless oversight that it actually was.
 
-I'm not mad at myself about it — I didn't know what I didn't know. As Maya Angelou says, now that I know better, I can do better.
+I'm not mad at myself about it — I didn't know what I didn't know. But as Maya Angelou said, now that I know better, I can do better.
 
 #### An opportunity to do better
 
-One afternoon last summer, I was scrolling on Instagram and when I came upon a post by an acquaintance saying that they had been badly injured. I knew this person didn't have family in town, and I knew they probably could use someone to take care of them.
+One afternoon last summer, I was scrolling on Instagram and came upon a post by an acquaintance saying that they had been badly injured. I knew this person didn't have family in town, and they probably could use someone to take care of them.
 
-Here was an opportunity to restore my karmic balance, by taking care of someone the way I failed to take care of my brother. And to pay it forward, since my brother was taken care of by a friend.
+Here was an opportunity to restore my karmic balance by taking care of someone the way I failed to take care of my brother. And to pay it forward, since my brother was taken care of by a friend.
 
 I ended up accompanying my acquaintance — who soon became a friend — through their whole hospital stay, from days in the hallway of an overfull emergency department through surgery and months of recovery. Because of COVID restrictions, I was one of only two people who were allowed to visit. 
 
-Also, like many of us, my friend's friends are scattered across the continent and around the world. For every person in Toronto who might have been able to visit (if there were no pandemic restrictions) they had half a dozen people who could only send encouraging text messages and UberEats gift cards. Those things are important. Practical help is great, and far more important is the feeling of being loved and cared for. But they don't compare to having someone physically by your side to rearrange your pillows and fetch you ice water. 
+As is true for many of us, my friend's friends are scattered across the continent and around the world. For every person in Toronto who might have been able to visit (if there were no pandemic restrictions) they had half a dozen people who could only send encouraging text messages and UberEats gift cards. Those things are important and wonderful: messages and gifts lift your spirits and help you feel cared for. But they don't substitute for having someone physically by your side to rearrange your pillows, fetch you ice water, and just be there.
 
 I'm not trying to say I'm a better friend, or diminish the other peoples' gestures of love and support. It was not all that much of a sacrifice for me: I enjoy taking care of people and I'm good at it. And practially, it was easy for me to help — I didn't have to travel far to the hospital, and I had plenty of free time that summer.
  
@@ -115,7 +114,7 @@ In the last couple of years, especially since the start of the pandemic, I've le
 
 #### 1. You need to live geographically close to at least some of your friends. 
 
-Sometimes you just need someone to be by your side, in a way that a phone call or an online-ordered gift just can't substitute for.
+Sometimes you just need someone to be by your side, in a way that a phone call or an online-ordered gift can't substitute for.
 
 I learned this during the beginning of the pandemic, when we were sharing flour and sourdough starter and the desperate joy of a front-yard conversation shouted across two meters of social distance. 
 
@@ -125,7 +124,7 @@ This realization left me with the still-open question: Should you live near wher
 
 #### 2. Friends are undervalued (and romantic partners are overvalued)
 
-Recently a different friend was diagnosed with breast cancer. (I guess I'm at that age where shit starts happening to my friends.) I didn't leap to her aid the way I leapt with the injured friend, and when I thought about why, I realized it was in part because my friend with cancer is married. On some level I thought, "Oh, her partner will take care of her."
+Recently a different friend was diagnosed with breast cancer. (I guess I'm at that age where shit starts happening to my friends.) I didn't leap to her aid the way I leapt to the aid of the injured friend, and when I thought about why, I realized it was in part because my friend with cancer is married. On some level I thought, "Oh, her partner will take care of her."
 
 How unfair! It's a huge burden to put on someone, to be responsible for a sick partner. And yet we do it all the time. I have another friend whose parents are in turmoil because her mom is declining and needs lots of care, and her father is the only one to take care of her. He has even put off his own heart surgery because he feels like he can't afford to be in recovery. It's heartbreaking.
 
@@ -141,7 +140,7 @@ There's a lot at play here, though. The world is not set up to encourage slack. 
 
 Feminist thinker Kelly Diels invites us, at times like this, to toggle up and see the bigger picture. Who benefits we don't have time and energy to take care of each other? 
 
-Companies benefit by being allowed to squeeze us for maximum hours of work without recourse. Gig economy delivery companies like UberEats and Instacart benefit when people with money but no time use delivery services to substitute for the kindness of bringing a neighbour groceries or a tray of lasagna. 
+Companies benefit by being allowed to squeeze us for maximum hours of work without recourse. Gig economy companies like UberEats and Instacart benefit when people use delivery services to substitute for the in-person kindness of bringing groceries or a tray of lasagna. 
 
 And of course, people in power benefit from the status quo when we're too busy to see how our neighbours and friends are struggling, and too tired to protest. 
 
