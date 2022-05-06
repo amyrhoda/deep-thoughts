@@ -48,7 +48,7 @@ I told myself I was a proper adult with responsibilities, and I didn't have time
 
 I have barely spoken to her since.
 
-### I lost so much
+#### I lost so much
 
 Don't get me wrong, I don't think every friendship is a forever friendship. I think it's natural for friends to come and go from your life. But those two relationships didn't naturally end — I abandoned them, because I didn't realize how important they were, and because I didn't know how to express my pain and ask for what I needed.
 
@@ -62,7 +62,7 @@ I've had to learn how to be a friend as an adult. I've learned to put in effort 
 
 And I've learned how to drop everything and look after someone. 
 
-### Sometimes you have to drop everything and look after someone
+#### Sometimes you have to drop everything and look after someone
 
 Even though my mum didn't teach me much about friendship, in the end my biggest lesson about sacrifice and care came from her. In April 2015 she got sick and had major surgery, followed by a rapid and dramatic decline. She died less than four months later.
 
@@ -79,7 +79,7 @@ What I learned in those four months was the mechanics, the literal logistics, of
 
 And because I had never done it, it had never occurred to me to do it, until the person who needed me was my mother.
 
-### A missed opportunity to take care of someone
+#### A missed opportunity to take care of someone
 
 A few years before my mother died, my brother was hit by a car and broke his knee. He had a pretty big surgery, was in hospital for a few weeks, and then went home to months of physio and recovery.
 
@@ -91,7 +91,7 @@ To be fair, my choice not to drop everything and take care of my brother was com
 
 I'm not mad at myself about it — I didn't know what I didn't know. As Maya Angelou says, now that I know better, I can do better.
 
-### An opportunity to do better
+#### An opportunity to do better
 
 One afternoon last summer, I was scrolling on Instagram and when I came upon a post by an acquaintance saying that they had been badly injured. I knew this person didn't have family in town, and I knew they probably could use someone to take care of them.
 
@@ -113,7 +113,7 @@ Even when we do live near our friends, our time is filled with work and tasks. W
 
 In the last couple of years, especially since the start of the pandemic, I've learned a few things about friendship.
 
-1. You need to live geographically close to at least some of your friends. 
+#### 1. You need to live geographically close to at least some of your friends. 
 
 Sometimes you just need someone to be by your side, in a way that a phone call or an online-ordered gift just can't substitute for.
 
@@ -123,7 +123,7 @@ Not being able to touch my friends made it abundantly clear how much I need frie
 
 This realization left me with the still-open question: Should you live near where your friends are, or should you make friends near where you live? The answer is probably, both. Of course, you can maintain friendships with people who move away or you move away from, and that's delightful. But from now on, when I move I'm going to put "make friends with some neighbours" at the top of the priority list, along with "find the library" and "get internet".
 
-2. Friends are undervalued (and romantic partners are overvalued)
+#### 2. Friends are undervalued (and romantic partners are overvalued)
 
 Recently a different friend was diagnosed with breast cancer. (I guess I'm at that age where shit starts happening to my friends.) I didn't leap to her aid the way I leapt with the injured friend, and when I thought about why, I realized it was in part because my friend with cancer is married. On some level I thought, "Oh, her partner will take care of her."
 
@@ -131,7 +131,7 @@ How unfair! It's a huge burden to put on someone, to be responsible for a sick p
 
 Like the kid in *About A Boy* says, two people aren't enough. There's just not enough redundancy, slack, or energy in a couple to be able to take care of each other through a big crisis without external support. And yet, that's exactly what we expect of people when they get married: that they become an island of two.
 
-3. You need to have slack in your life so you can take care of people
+#### 3. You need to have slack in your life so you can take care of people
 
 I've [written about slack before](https://www.amyrhodabrown.com/blog/consider-slacking) — it's the idea that you keep some amount of spare capacity in your life so that you have something to give in a crisis. It could be money, to give to people and organizations. It could be space, to offer a friend in need somewhere to stay. 
 
@@ -145,7 +145,7 @@ Companies benefit by being allowed to squeeze us for maximum hours of work witho
 
 And of course, people in power benefit from the status quo when we're too busy to see how our neighbours and friends are struggling, and too tired to protest. 
 
-4. Tell your friends that you love them (also, notice that you love your friends)
+#### 4. Tell your friends that you love them (also, notice that you love your friends)
 
 We don't usually tell our friends we love them. The idea of love is reserved for family and romance.
 
@@ -161,7 +161,7 @@ Do I offer all that to any of my friends? Not entirely. But I'd like to. I want 
 
 And so I've started telling my friends I love them. It's not as awkward as I thought it would be; the words kind of spill out. True, the aftermath can be awkward, especially when the friend in question is also English — but the feeling of completeness I walk away with is worth it.
 
-# On being a better friend
+### On being a better friend
 
 I said I haven't been good at friendship. But I am changing. I'm making time to care for my friends. I'm telling them I love them. I'm making friendship a priority, because friendships are not just fun. They uplift us, they protect us, they reflect us back to ourselves and help us become better. Friendships are worth it.
 
