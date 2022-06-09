@@ -18,16 +18,16 @@ I took pages of notes on this book, and I recommend it. It's particularly timely
 
 I could spend a long time typing out interesting things I learned from this book, but I have other books to review. Here are just a couple:
 
-– Once a power hierarchy is in place, lots of mechanisms work to keep it in place. A person who has power tends to become less empathetic, more entitled, more self-absorbed and more arrogant. Having power tends to make you think you deserve power (and that those without it deserve their situation, too).
-– Conversely, even people without power tend to believe their situation is just and fair. This is because it's more comforting to believe the world makes sense and is orderly and predictable, even if you happen to have gotten a bad lot, than to believe that the world is unfair and cruel. (It reminds me of how abused and neglected children believe there is something wrong with them rather than believe their parents are doing wrong.)
-– It takes three kinds of people to shift power hierarchies: agitators, innovators, and orchestrators. Agitators point out and articulate the grievances, innovators propose a new way of doing things, and orchestrators make the plans and the connections. You need all three for change to happen.
-– Collective action is how people who don't have other kinds of power (money, influence) can make change happen.
+- Once a power hierarchy is in place, lots of mechanisms work to keep it in place. A person who has power tends to become less empathetic, more entitled, more self-absorbed and more arrogant. Having power tends to make you think you deserve power (and that those without it deserve their situation, too).
+- Conversely, even people without power tend to believe their situation is just and fair. This is because it's more comforting to believe the world makes sense and is orderly and predictable, even if you happen to have gotten a bad lot, than to believe that the world is unfair and cruel. (It reminds me of how abused and neglected children believe there is something wrong with them rather than believe their parents are doing wrong.)
+- It takes three kinds of people to shift power hierarchies: agitators, innovators, and orchestrators. Agitators point out and articulate the grievances, innovators propose a new way of doing things, and orchestrators make the plans and the connections. You need all three for change to happen.
+- Collective action is how people who don't have other kinds of power (money, influence) can make change happen.
 
 There's so much more in this book. It's academic, so it's dense with information, but I didn't find it dry; there are good stories and case studies throughout.
 
 ### *Special Topics in Being a Human: A Queer and Tender Guide to Things I've Learned the Hard Way about Caring for People, Including Myself* by S. Bear Bergman
 
-<img src="/images/bergman-tpoics.jpg" width="250px" style="float: right; padding:10px;">
+<img src="/images/bergman-topics.jpg" width="250px" style="float: right; padding:10px;">
 
 I love everything Bear Bergman does, so it's not a big surprise that I love this book. Bergman has been writing an advice column for years, and this book is a collection of advice that he's given again and again.
 
