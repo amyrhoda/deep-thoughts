@@ -56,7 +56,7 @@ I love my work. When I'm tucked behind my desk with my books and my computer and
 
 And I'm not just doing my work for myself. People want me to write newsletters and host co-working sessions and lead coaching groups, and I'm happy to oblige. 
 
-As you can see, my sense of purpose is very service oriented. I derive a sense of worth from doing things for other people. My need to feel like I'm of service makes it easy for me to tidy the house or work on book reviews or run errands instead of doing something just for me.
+As you can see, my sense of purpose is very service oriented. I derive a sense of worth from doing things for other people. My need to feel like I'm of service makes it easy for me to tidy the house or work on book reviews or run errands instead of doing something just for me. It seems like a good idea in the moment, but it doesn't help me feel rested or refreshed.
 
 Even when I do rest or have fun, I often frame it in terms of restoring myself so I can get back to helping others. You know that oxygen mask metaphor, where you put the oxygen mask on yourself first so that you can help your kid put theirs on? I relate to that.
 
