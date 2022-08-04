@@ -1,5 +1,5 @@
 ---
-format: post
+layout: post
 title: The Trouble with Time Off
 status: published
 ---
