@@ -1,7 +1,7 @@
 ---
 layout: post
 title: The Trouble with Time Off
-status: published
+published: false
 ---
 
 I'm about to do something that scares me.
