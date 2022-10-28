@@ -10,9 +10,7 @@ That question came to me yesterday. Not in a despairing way, not in a judgmental
 
 "Will our protagonist ever get serious about her writing? Or will she die without getting around to it? How's this one going to end?"
 
----
-
-#### I feel like I should be a writer.
+### I feel like I should be a writer.
 
 I feel like I should be a writer.
 
@@ -20,9 +18,7 @@ This is not an unusual feeling. Just this morning I was talking to a friend and 
 
 Feeling like I should be a writer means next to nothing.
 
-----
-
-#### I'm already a writer
+### I'm already a writer
 
 I'm already a writer. I write.
 
@@ -42,9 +38,7 @@ Do I want the third-party validation of being published? If my writing was publi
 
 Do I want to take myself seriously as a writer? If I dedicated more time to writing, and worked harder on it, would that make me a proper writer?
 
---- 
-
-#### Does the world need my writing?
+### Does the world need my writing?
 
 I'm a middle-aged white lady going through a big life change. Oh goodness why isn't anyone talking about this? 
 
@@ -58,9 +52,7 @@ Is that just a handy excuse for me, a nice progressive-looking way to avoid disc
 
 Maybe, but it could also be true.
 
----
-
-#### What next?
+### What next?
 
 What would it take to properly be a writer? What would it take to satisfy *myself* that I'm properly being a writer?
 
@@ -78,9 +70,7 @@ I'd need to decide that this is a thing that's important enough to really work o
 
 And that's the part I haven't done yet.
 
----
-
-#### I still don't know
+### I still don't know
 
 I don't have an answer for my question, of whether I'm ever going to properly be a writer, or if I'm going to pussyfoot around it until I die.
 
