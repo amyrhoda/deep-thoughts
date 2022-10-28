@@ -42,27 +42,29 @@ Do I want to take myself seriously as a writer? If I dedicated more time to writ
 
 I'm a middle-aged white lady going through a big life change. Oh goodness why isn't anyone talking about this? 
 
-I'm being sarcastic. Every middle-aged white lady going through a big life change seems to write a book about it. Every possible take has already beeing taken. What can I add?
+I'm being sarcastic. Every middle-aged white lady going through a big life change seems to write a book about it. Every possible take has already been taken. What can I add?
 
 There's an argument that everyone has something new to add, and that you (you-everyone) should definitely make your art or write your songs or whatever because your take is unique and valuable just because it's yours and you are unique and valuable. And I believe that.
 
 I believe that, to a point. But there's a difference between making your art and taking up a lot of space with it. It's a fact that certain kinds of people (white, male, rich) take up too much space in the world, with their art and their opinions and their takes. I don't want to be part of that problem.
 
-Is that just a handy excuse for me, a nice progressive-looking way to avoid discomfort?
+I mean, I'm already making my art: I already write. So maybe being a proper writer means taking up more space with it, and I don't want to do that.
 
-Maybe, but it could also be true.
+Or is that just a handy excuse for me, a nice progressive-looking way to avoid the discomfort of trying?
+
+Maybe. But it could also be true.
 
 ### What next?
 
 What would it take to properly be a writer? What would it take to satisfy *myself* that I'm properly being a writer?
 
-The first step would be to figure out what I need to feel like a proper writer, given that, as I said before, I'm already technically a writer.
+The first step would be to figure out what I need to feel like a proper writer, given that, as I said before, I'm already a writer.
 
 Do I need to be published? Do I need to be read by more people? Win an award? Earn lots of money? (God help me if that's it.) 
 
-And then, it takes the same thing it takes to make any kind of change in life: new habits, new skills, and new structure.
+After I figure that out, it would take the same thing it takes to make any kind of change in life: new habits, new skills, and new structure.
 
-I'd need to figure out what skills, habits and structure I need to develop. Then I'd need to commit to doing whatever it would take to develop them, and I'd need to persist until I made the thing happen — or I died, whichever comes first.
+I'd need to find out what skills, habits and structure I need to develop. Then I'd need to commit to doing whatever it would take to develop them, and I'd need to persist until I made the thing happen — or I died, whichever comes first.
 
 But first, before all of those things, I'd need to decide to do it. 
 
@@ -72,7 +74,7 @@ And that's the part I haven't done yet.
 
 ### I still don't know
 
-I don't have an answer for my question, of whether I'm ever going to properly be a writer, or if I'm going to pussyfoot around it until I die.
+I don't have an answer to my question, of whether I'm ever going to properly be a writer, or if I'm going to pussyfoot around it until I die.
 
 I don't even know what it would take for me to decide. 
 
